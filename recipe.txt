@@ -1,0 +1,21 @@
+peppers stuffed with quinoa and spinach
+
+ingredients
+1 14 1/2 ounce can vegetable broth
+1/3 cup quick-cooking barley
+1/3 cup quinoa, rinsed and drained
+1 medium onion, chopped
+2 cloves garlic, minced
+2 tablespoons olive oil
+2 cups sliced fresh mushrooms
+1 14 1/2 ounce can diced tomatoes, drained
+1/2 of a 10-ounce package frozen chopped spinach, thawed and well-drained, or 3 cups fresh spinach
+1/4 teaspoon salt
+1/4 teaspoon ground black pepper
+1 1/4 cups shredded Monterey Jack cheese with jalapeno peppers or Monterey Jack cheese (5 ounces)
+3 large red sweet peppers
+directions
+1. Preheat oven to 400 degrees F. In a medium saucepan bring broth to boiling. Add barley and quinoa. Return to boiling; reduce heat. Cook, covered, about 12 minutes or until tender. Drain, reserving 1/3 cup cooking liquid; set aside.
+2. In a large skillet cook onion and garlic in hot oil over medium heat for 2 minutes. Add mushrooms; cook and stir for 4 to 5 minutes or until tender. Stir in tomatoes, spinach, the salt, and the black pepper. Add quinoa mixture and 1/2 cup of the cheese; stir to combine. Remove from heat.
+3. Cut peppers in half lengthwise. Remove and discard seeds and membranes from the peppers. Sprinkle insides of peppers lightly with additional salt and black pepper. Fill pepper halves with quinoa mixture. Place peppers, filled sides up, in a 3-quart rectangular baking dish. Pour the reserved cooking liquid into dish around peppers.
+4. Bake, covered, for 30 minutes. Uncover; top stuffed peppers with the remaining cheese. Bake, uncovered, about 10 more minutes or until peppers are crisp-tender and cheese is browned.
